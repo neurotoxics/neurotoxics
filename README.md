@@ -5,7 +5,7 @@
 </p>
 
 
-‎ ‎ ⫘⫘⫘⫘⫘⫘‎⫘⫘⫘⫘⫘⫘ ‎ 𓉸 [info](https://carrd.co/jankayaoi) ☣︎ [rentry](https://rentry.co/bruisedbite) 𓉸 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+‎ ‎ ⫘⫘⫘⫘⫘⫘‎⫘⫘⫘⫘⫘⫘ ‎ 𓉸 [info](https://jankayaoi.carrd.co/) ☣︎ [rentry](https://rentry.co/bruisedbite) 𓉸 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 <!--
 **neurotoxics/neurotoxics** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
