@@ -1,4 +1,11 @@
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ᵇᶦᵗᵉ ᶦⁿᵗᵒ ᵐᵉ ʰᵃʳᵈᵉʳ, ˢᶦⁿᵏ ʸᵒᵘʳ ᵗᵉᵉᵗʰ ᶦⁿᵗᵒ ᵐʸ ᶠˡᵉˢʰ ♥︎ !
 
+ <p align="center">
+  <img src="https://files.catbox.moe/s6dtr7.png" />
+</p>
+
+
+‎ ‎ ⫘⫘⫘⫘⫘⫘‎⫘⫘⫘⫘⫘⫘ ‎ 𓉸 [info](https://carrd.co/jankayaoi) ☣︎ [rentry](https://rentry.co/bruisedbite) 𓉸 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 <!--
 **neurotoxics/neurotoxics** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
