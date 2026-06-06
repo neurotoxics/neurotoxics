@@ -1,8 +1,6 @@
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ᵇᶦᵗᵉ ᶦⁿᵗᵒ ᵐᵉ ʰᵃʳᵈᵉʳ, ˢᶦⁿᵏ ʸᵒᵘʳ ᵗᵉᵉᵗʰ ᶦⁿᵗᵒ ᵐʸ ᶠˡᵉˢʰ ♥︎ !
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ how does it feel when the ones that feed are biting you  ?
 
- <p align="center">
-  <img src="https://files.catbox.moe/sv8m5n.png" />
-</p>
+ reworking.
 
 
 ‎ ‎ ⫘⫘⫘⫘⫘⫘‎⫘⫘⫘⫘⫘⫘ ‎ 𓉸 [info](https://jankayaoi.carrd.co/) ☣︎ [rentry](https://rentry.co/bruisedbite) 𓉸 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
