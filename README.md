@@ -1,10 +1,9 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ how does it feel when the ones that feed are biting you  ?
+[![ata](https://files.catbox.moe/8191nc.png)](https://janka.atabook.org/) 
 
- reworking.
+▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄ carrd , rentry , prns.cc below. ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄ 
 
-
-‎ ‎ ⫘⫘⫘⫘⫘⫘‎⫘⫘⫘⫘⫘⫘ ‎ 𓉸 [info](https://jankayaoi.carrd.co/) ☣︎ [rentry](https://rentry.co/bruisedbite) 𓉸 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
-
+[![carrd](https://files.catbox.moe/tcj5kq.png)](https://lastprinces.carrd.co/) [![rentry](https://files.catbox.moe/r04je2.png)](https://rentry.co/bruisedbite) [![prns.cc](https://files.catbox.moe/c414f8.png)](https://pronouns.cc/@vamphunter)
 <!--
 **neurotoxics/neurotoxics** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
