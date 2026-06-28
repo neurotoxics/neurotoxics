@@ -3,7 +3,7 @@
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄ carrd , rentry , prns.cc below. ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄ 
 
-[![carrd](https://files.catbox.moe/tcj5kq.png)](https://lastprinces.carrd.co/) [![rentry](https://files.catbox.moe/r04je2.png)](https://rentry.co/bruisedbite) [![prns.cc](https://files.catbox.moe/c414f8.png)](https://pronouns.cc/@vamphunter)
+[![carrd](https://files.catbox.moe/tcj5kq.png)](https://lastprinces.carrd.co/) [![rentry](https://files.catbox.moe/r04je2.png)](https://rentry.co/DEClPHERED) [![prns.cc](https://files.catbox.moe/c414f8.png)](https://pronouns.cc/@vamphunter)
 <!--
 **neurotoxics/neurotoxics** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
